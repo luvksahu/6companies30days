@@ -1,2 +1,1 @@
-# 6companies30days
-#6companies30days #revisewitharshgoyal
+About I'm taking up #ReviseWithArsh #6Companies30Days challenge by arsh goyal
